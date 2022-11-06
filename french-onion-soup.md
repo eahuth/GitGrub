@@ -20,7 +20,9 @@ Ingredients:
 - 1 1/2 cups grated Gruyere cheese
 - Sprinkling grated Parmesan cheese
 
-Optional: use Fire & Kettle brand beef/chicken stock (already flavored with bay leaves & thyme)
+Recommendations: 
+- Fire & Kettle brand beef/chicken stock (already flavored with bay leaves & thyme)
+- Big Churn Chardonnay from trader joe's to deglaze pot or for pairing
 
 Instructions:
 1. Peel and slice the onions:
