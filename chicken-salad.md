@@ -9,7 +9,7 @@ Ingredients:
 - Kosher salt and freshly ground black pepper
 - 4 cups diced poached chicken or 1 rotisserie chicken
 - 1 stalk celery, cut into 1/4-inch dice
-- 2 tablespoons shallot, cut into 1/4-inch dice
+- 1 to 2 shallots, cut into 1/4-inch dice
 - 2 tablespoons finely chopped fresh dill
 - 2 tablespoons finely chopped parsley
 - Sliced chives, for garnish
