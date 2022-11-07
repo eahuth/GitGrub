@@ -37,6 +37,10 @@ To serve:
 - Fluffy pocketless pita bread, brushed in butter, lightly toasted, and cut into 1 × 3-inch strips
 - Harissa-style hot sauce, for serving
 
+Optional: 
+- Naan bread instead of pita 
+- Sriracha can be used for the hot sauce as a substitute 
+
 Directions:
 
 For the beef: 
@@ -52,7 +56,3 @@ For the sauce:
 
 To serve:
 - Return the entire contents of the beef bowl (beef, marinade, and all juices) to the skillet. Cook over medium-high heat, stirring occasionally, until heated through. To serve, divide the rice, lettuce, tomato, and toasted pita bread evenly among four to six plates. Pile the beef on top of the rice. Top with the white sauce and hot sauce. Serve immediately, passing extra sauce at the table.
-
-Optional: 
-- Naan bread instead of pita 
-- Sriracha for the hot sauce
