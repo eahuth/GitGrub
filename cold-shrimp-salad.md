@@ -23,4 +23,4 @@ Serves 4
 
 Notes: 
 - Probably best to boil for exactly three minutes then put into ice bath.
-- Good on toasted brioche with a bit of mayo as a sandwich. 
+- Good on toasted brioche with a bit of mayo and avocado as a sandwich. 
