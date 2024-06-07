@@ -9,3 +9,7 @@ Ingredients
 	
 Instructions
 Mix all ingredients together and refrigerate!
+
+Notes:
+Ikea Stockholm salad: smoked salmon, potato salad, and greens (spring mix or 50/50 spring mix and spinach) with this dressing, slice of lemon
+
